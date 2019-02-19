@@ -1,1 +1,1 @@
-# VarjabL3x.github.io
+# VariabL3x.github.io
